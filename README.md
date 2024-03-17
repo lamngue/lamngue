@@ -2,7 +2,7 @@
 
 🧑🏻‍💻 I'm a Master's student at Radboud University in the Netherlands
 
-💪🏻 Quickly adapt to change, possess eagerness towards learning and constantly search for opportunities to strive for the better
+💪🏻 Quickly adjust to change, ready for learning and constantly searching for opportunities to strive for the better
 
 💻 Coding in multiple languages (Python and Java to name a few)
 
